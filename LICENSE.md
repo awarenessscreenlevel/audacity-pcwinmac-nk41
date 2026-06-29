@@ -1,4 +1,4 @@
-# 
+# Top Audacity plugins pour Mac OS | Natif Audacity plugins pour PC Windows. Avec fond vert et incrustation fond vert — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
